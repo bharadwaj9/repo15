@@ -1,4 +1,0 @@
-rrrrrrrrrrrrrrrrrr
-ttttttttttttt
-yyyyyyyyyyyyyyyyyyyyyyyyy
-uuuuuuuuuuuuuuuuuu
